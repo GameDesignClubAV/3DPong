@@ -1,2 +1,2 @@
 # Unravel
-Unravel, the game that will change the world
+Unravel, the game that will change the world forever and ever.
